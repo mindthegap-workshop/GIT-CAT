@@ -15,4 +15,6 @@ We hope you enjoy our curated list of dad jokes!
 1. Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
 1. My wife told me to put the cat out. I didn’t know it was on fire! By the time I could act, it was incinerated, a harbinger of the path we all must take.
 1. I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+1.Eight bytes walk into a bar.  The bartender asks, “Can I get you anything?” “Yeah,” reply the bytes.  “Make us a double.”
+
 1. Graham first joke - Knock knock who is there?
